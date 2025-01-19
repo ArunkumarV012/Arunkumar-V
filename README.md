@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Full stack development course at NxtWave.**
 
-- 👨‍💻 All of my projects are available at [https://arunportfolio.ccbp.tech/](https://arunportfolio.ccbp.tech/)
+- 👨‍💻 All of my projects are available at https://arunportfolio.ccbp.tech/
 
 - 💬 Ask me about **B.E, Computer Science and Engineering**
 
