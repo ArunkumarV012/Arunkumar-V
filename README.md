@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **arunkumar012cse@gmail.com**
 
-- 📄 Know about my experiences [My Resume Link]([https://drive.google.com/file/d/16v6HPc8a-TAD-pYI03EkpQJWnGQo0Xce/view](https://drive.google.com/file/d/1ceJq0AsQrkTPp8dFx6byHa7EYf7KBmgC/view?usp=sharing))
+- 📄 Know about my experiences [My jhjh](https://drive.google.com/file/d/16v6HPc8a-TAD-pYI03EkpQJWnGQo0Xce/view](https://drive.google.com/file/d/1ceJq0AsQrkTPp8dFx6byHa7EYf7KBmgC/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
